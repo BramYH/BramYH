@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... Will update later
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I am writing a fantasy setting in obsidian (My Aszuremof repo)
+- ⚡ Fun fact: ... I am writing a fantasy setting in obsidian (My Aszuremof repo pinned on my profile)
 -->
